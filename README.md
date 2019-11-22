@@ -1,2 +1,1 @@
-# mylife
-this is my life
+if you're reading this then i need your help. 
